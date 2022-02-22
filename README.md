@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning the basics
 - 🌱 I’m currently doing nothing rn
 - 💞️ I’m looking to collaborate on not really sure yet 
-- 📫 How to reach me instagram 
+- 📫 How to reach me instagram @yo_boi_1315
 
 <!---
 bbnb4k/bbnb4k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
